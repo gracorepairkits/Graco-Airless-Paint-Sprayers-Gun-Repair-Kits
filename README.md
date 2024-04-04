@@ -1,6 +1,7 @@
 # Keeping Your Graco Airless Sprayer in Top Shape: A Guide to Gun Repair Kits
 
 ![Graco Airless Paint Sprayers Gun Repair Kits](https://integritysupply.com/media/catalog/product/cache/42a8d44f0cb2f10b14ad56a85e352dc6/n/e/new_contractor_and_ftx_repair_kit_h3c3v5k8zv7rhjhy.jpg)
+<img src="https://integritysupply.com/media/catalog/product/cache/42a8d44f0cb2f10b14ad56a85e352dc6/n/e/new_contractor_and_ftx_repair_kit_h3c3v5k8zv7rhjhy.jpg" width="100" height="100">
 
 Graco airless paint sprayers are renowned for their efficiency and durability. But even the toughest tools need some TLC now and then.  When your Graco sprayer starts showing signs of wear, like uneven spraying or dripping, it might be time to consider a gun repair kit.
 
