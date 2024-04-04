@@ -20,7 +20,7 @@ Graco offers a variety of gun repair kits designed for specific models.  Here's 
 
 1. **Identify your spray gun model:**  This information is usually printed on the gun itself.
 
-2. **Check the  Integrity Supply website:**  Integrity Supply provides a comprehensive list of repair kits with corresponding model numbers on their website [[https://www.amazon.com/graco-pump-repair-kit/s?k=graco+pump+repair+kit](https://integritysupply.com/graco/airless-paint-sprayers-gun-repair-kits.html]([https://www.amazon.com/graco-pump-repair-kit/s?k=graco+pump+repair+kit](https://integritysupply.com/graco/airless-paint-sprayers-gun-repair-kits.html).
+2. **Check the  Integrity Supply website:**  Integrity Supply provides a comprehensive list of repair kits with corresponding model numbers on their website [https://integritysupply.com/graco/airless-paint-sprayers-gun-repair-kits.html](https://integritysupply.com/graco/airless-paint-sprayers-gun-repair-kits.html).
 
 3. **Consult a retailer:** If you're unsure about the model of your gun, a Graco retailer can help you identify the correct repair kit.
 
